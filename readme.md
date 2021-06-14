@@ -1,0 +1,1 @@
+#KIDT guruh sayti
